@@ -1,4 +1,4 @@
-Chapter 1: Understanding Lifelong Learning: What is Lifelong Learning?
+What is Lifelong Learning?
 ======================================================================
 
 Lifelong learning refers to the continuous pursuit of knowledge and skills throughout one's life. It encompasses all forms of learning that individuals engage in beyond traditional educational settings, including formal education, non-formal learning, and informal learning.

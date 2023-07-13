@@ -1,4 +1,4 @@
-Chapter 9: Applying Lifelong Learning to Professional Growth: Building Skills and Expertise
+Building Skills and Expertise
 ===========================================================================================
 
 Lifelong learning is essential for professional growth and development. In this chapter, we will explore strategies for applying lifelong learning to build skills and expertise in your chosen field.

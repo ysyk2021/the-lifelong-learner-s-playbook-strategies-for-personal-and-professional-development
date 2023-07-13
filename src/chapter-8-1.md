@@ -1,4 +1,4 @@
-Chapter 7: Building a Learning Network: The Importance of Building a Learning Network
+The Importance of Building a Learning Network
 =====================================================================================
 
 Building a learning network is crucial for lifelong learners. It provides opportunities for collaboration, sharing knowledge and experiences, and expanding one's perspective.

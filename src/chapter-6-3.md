@@ -1,4 +1,4 @@
-Chapter 5: Creating a Learning Plan: Incorporating Different Learning Styles
+Incorporating Different Learning Styles
 ============================================================================
 
 Creating a learning plan is an essential component of the lifelong learning process. It helps individuals to identify their learning needs, set goals, and develop strategies for achieving those goals.

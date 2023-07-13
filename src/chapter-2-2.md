@@ -1,4 +1,4 @@
-Chapter 1: Understanding Lifelong Learning: Types of Lifelong Learning
+Types of Lifelong Learning
 ======================================================================
 
 Lifelong learning encompasses all forms of learning that individuals engage in throughout their lives. In this chapter, we will explore the three main types of lifelong learning.

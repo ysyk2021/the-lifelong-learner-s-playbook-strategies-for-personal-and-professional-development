@@ -1,4 +1,4 @@
-Chapter 2: Developing a Growth Mindset for Learning: Techniques for Developing a Growth Mindset
+Techniques for Developing a Growth Mindset
 ===============================================================================================
 
 Developing a growth mindset is essential for effective learning and personal and professional development. In this chapter, we will explore techniques for developing a growth mindset.

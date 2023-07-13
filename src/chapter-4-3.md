@@ -1,4 +1,4 @@
-Chapter 3: Building Self-Awareness: Building Focus and Motivation
+Building Focus and Motivation
 =================================================================
 
 Building self-awareness is an important aspect of personal and professional development. In this chapter, we will explore how to use self-awareness to build focus and motivation.

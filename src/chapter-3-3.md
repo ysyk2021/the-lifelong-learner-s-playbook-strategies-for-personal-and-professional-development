@@ -1,4 +1,4 @@
-Chapter 2: Developing a Growth Mindset for Learning: Overcoming Obstacles to Effective Learning
+Overcoming Obstacles to Effective Learning
 ===============================================================================================
 
 Developing a growth mindset is essential for effective learning and personal and professional development. In this chapter, we will explore what a growth mindset is, the obstacles that can hinder effective learning, and strategies for overcoming these obstacles.

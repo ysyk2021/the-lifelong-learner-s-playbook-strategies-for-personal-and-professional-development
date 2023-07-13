@@ -1,4 +1,4 @@
-Chapter 4: Setting Goals for Learning and Development: Techniques for Setting Effective Goals
+Techniques for Setting Effective Goals
 =============================================================================================
 
 Setting goals is a critical component of the lifelong learning process. It helps individuals to focus their efforts, prioritize their time, and measure progress towards personal and professional growth.

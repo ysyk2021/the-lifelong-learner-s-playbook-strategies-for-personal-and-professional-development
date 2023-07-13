@@ -1,4 +1,4 @@
-Chapter 8: Applying Lifelong Learning to Personal Growth: Setting Goals for Personal Growth through Lifelong Learning
+Setting Goals for Personal Growth through Lifelong Learning
 =====================================================================================================================
 
 Lifelong learning can be a powerful tool for personal growth and development. By setting clear goals for personal growth and pursuing lifelong learning opportunities that align with those goals, individuals can cultivate new skills, explore new passions and interests, and achieve greater fulfillment in their personal lives.

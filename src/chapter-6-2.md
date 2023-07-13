@@ -1,4 +1,4 @@
-Chapter 5: Creating a Learning Plan: Techniques for Creating an Effective Learning Plan
+Techniques for Creating an Effective Learning Plan
 =======================================================================================
 
 A learning plan is a roadmap that outlines an individual's learning goals, strategies, and progress towards achieving those goals. It is an essential tool for lifelong learners as it provides a framework for effective learning and development.

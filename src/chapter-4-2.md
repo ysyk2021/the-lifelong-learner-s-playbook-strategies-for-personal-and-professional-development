@@ -1,4 +1,4 @@
-Chapter 3: Building Self-Awareness: Identifying Your Strengths and Weaknesses
+Identifying Your Strengths and Weaknesses
 =============================================================================
 
 Building self-awareness is a crucial step in lifelong learning and personal development. In this chapter, we will explore the importance of self-awareness, techniques for identifying your strengths and weaknesses, and how to use this information to enhance your personal and professional growth.

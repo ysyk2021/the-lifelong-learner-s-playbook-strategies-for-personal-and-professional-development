@@ -1,4 +1,4 @@
-Chapter 4: Setting Goals for Learning and Development: The Importance of Goal Setting for Learning and Development
+The Importance of Goal Setting for Learning and Development
 ==================================================================================================================
 
 Goal setting is a crucial aspect of the lifelong learning process. It provides individuals with a clear direction and purpose, helps prioritize time and resources, and enables them to measure their progress towards personal and professional development.

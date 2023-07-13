@@ -1,4 +1,4 @@
-Chapter 6: Navigating Learning Challenges: Building Resilience and Adaptability
+Building Resilience and Adaptability
 ===============================================================================
 
 Learning challenges are a natural part of the lifelong learning journey. In this chapter, we will explore strategies for building resilience and adaptability to overcome obstacles and navigate learning challenges.

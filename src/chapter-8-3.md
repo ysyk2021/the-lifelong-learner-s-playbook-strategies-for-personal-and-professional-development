@@ -1,4 +1,4 @@
-Chapter 7: Building a Learning Network: Building Collaboration and Communication Skills
+Building Collaboration and Communication Skills
 =======================================================================================
 
 Building a learning network is essential for lifelong learners. It provides opportunities for collaboration, sharing knowledge and experiences, and expanding one's perspective.

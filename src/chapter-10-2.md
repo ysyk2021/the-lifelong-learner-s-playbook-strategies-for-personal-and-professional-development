@@ -1,4 +1,4 @@
-Chapter 9: Applying Lifelong Learning to Professional Growth: Setting Goals for Professional Growth through Lifelong Learning
+Setting Goals for Professional Growth through Lifelong Learning
 =============================================================================================================================
 
 Setting goals is a crucial aspect of using lifelong learning for professional growth. In this chapter, we will explore the importance of setting goals for professional growth and provide strategies for setting effective goals.

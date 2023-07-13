@@ -1,7 +1,6 @@
 # Summary
 
 - [Introduction](README.md)
-- [Introduction](chapter-1.md)
   - [Why lifelong learning is important](chapter-1-1.md)
   - [The challenges of personal and professional development](chapter-1-2.md)
   - [The role of The Lifelong Learner's Playbook](chapter-1-3.md)
@@ -41,8 +40,4 @@
   - [Using lifelong learning for career development](chapter-10-1.md)
   - [Setting goals for professional growth through lifelong learning](chapter-10-2.md)
   - [Building skills and expertise](chapter-10-3.md)
-- [Conclusion](chapter-11.md)
-  - [The ongoing journey of lifelong learning](chapter-11-1.md)
-  - [Final thoughts and recommendations for readers](chapter-11-2.md)
 - [Conclusion](conclusion.md)
-- [Contacts](contacts.md)

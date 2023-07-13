@@ -1,4 +1,4 @@
-Chapter 4: Setting Goals for Learning and Development: Balancing Short-term and Long-term Goals
+Balancing Short-term and Long-term Goals
 ===============================================================================================
 
 Setting goals is an essential part of lifelong learning and development. Without clear goals, it can be challenging to make progress or stay motivated. However, setting effective goals requires a balance between short-term and long-term objectives.
