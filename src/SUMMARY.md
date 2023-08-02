@@ -41,3 +41,4 @@
   - [Setting goals for professional growth through lifelong learning](chapter-10-2.md)
   - [Building skills and expertise](chapter-10-3.md)
 - [Conclusion](conclusion.md)
+- [Contacts](contacts.md)
