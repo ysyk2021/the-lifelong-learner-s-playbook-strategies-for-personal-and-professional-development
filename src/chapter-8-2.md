@@ -1,5 +1,3 @@
-Techniques for Building a Learning Network
-===================================================
 
 In this chapter, we explore the significance of building a learning network and provide techniques to establish and cultivate valuable connections with fellow learners. A learning network offers numerous benefits, including access to diverse perspectives, opportunities for collaboration, and continuous knowledge acquisition. In this chapter, we will discuss effective techniques for building and nurturing a robust learning network.
 

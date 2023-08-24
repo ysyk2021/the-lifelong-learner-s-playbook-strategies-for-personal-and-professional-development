@@ -1,5 +1,3 @@
-Chapter 7: Building a Learning Network
-======================================
 
 Building a learning network is essential for lifelong learners who want to continue their personal and professional development. In this chapter, we will explore the importance of building a learning network, techniques for building a learning network, and how to build collaboration and communication skills within your network.
 

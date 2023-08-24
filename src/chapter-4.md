@@ -1,5 +1,3 @@
-Chapter 3: Building Self-Awareness
-==================================
 
 Building self-awareness is a crucial step in personal and professional development. In this chapter, we will explore techniques for building self-awareness, identifying your strengths and weaknesses, and building focus and motivation.
 

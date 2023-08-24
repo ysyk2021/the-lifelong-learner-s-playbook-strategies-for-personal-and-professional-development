@@ -1,5 +1,3 @@
-Chapter 4: Setting Goals for Learning and Development
-=====================================================
 
 Setting goals is a crucial aspect of personal and professional development. In this chapter, we will explore the importance of goal setting, techniques for setting effective goals, and how to balance short-term and long-term goals.
 
